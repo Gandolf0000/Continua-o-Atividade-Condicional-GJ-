@@ -1,1 +1,1 @@
-# Continua-o-Atividade-Condicional-GJ-
+# Continua-o-Atividade-Condicional-
